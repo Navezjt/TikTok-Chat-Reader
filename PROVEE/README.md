@@ -1,0 +1,1 @@
+https://github.com/zerodytrash/TikTok-Chat-Reader
